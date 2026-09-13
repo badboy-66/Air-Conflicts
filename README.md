@@ -216,3 +216,6 @@ Air Conflicts is offered as a full free version, giving players access to all fe
 ---
 
 Don’t miss out on the action! Download **Air Conflicts** now and step into the cockpit for an unforgettable aerial experience!
+
+---
+**Last updated:** 2026-09-13 22:43:16 UTC
